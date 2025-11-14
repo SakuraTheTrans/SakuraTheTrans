@@ -1,4 +1,4 @@
 - Hello! Im a trans girl with far too much free time
 - Im interested in Python, HTML, Javascript, And Java
 - I’m currently learning Java and Javascript
-- My Discord Is "sakurathetrans"
+- My Discord Is "quillofcreation_"
